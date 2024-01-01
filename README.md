@@ -1,0 +1,1 @@
+# od-marketingoveho-specialisty.cz
